@@ -1,0 +1,2 @@
+# teamwork
+Alima/Shynggys/Altynay
